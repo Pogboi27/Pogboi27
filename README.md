@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pogboi27
 - 👀 I’m interested in: making stuff
-- 🌱 I’m currently: learning stuff
+- 🌱 I’m currently learning: stuff
 - 💞️ I’m looking to collaborate on: nothing
 - 📫 How to reach me: don't
 
